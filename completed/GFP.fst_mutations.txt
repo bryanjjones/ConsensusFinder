@@ -1,0 +1,5 @@
+These mutations may stabilize your protein since they differ from a consensus of over 60.0%
+Change M 1 to V (found in 72% of similar proteins)
+Change F 64 to L (found in 71% of similar proteins)
+Change A 72 to S (found in 62% of similar proteins)
+Change G 65 to T (found in 60% of similar proteins)

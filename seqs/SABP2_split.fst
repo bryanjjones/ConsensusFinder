@@ -1,0 +1,11 @@
+>SABP2_Refrence
+mkegkhfvlvhgachggwswyklkplleaaghkvtaldlaasgtdlrkieelrtlydytlplme
+
+lmeslsadekvilvghslggmnlglamekypqkiyaavflaafmpdsvhnssfvleqynertpa
+
+enwldtqflpygspeepltsmffgpkflahklyqlcspedlalasslvrpsslfmedlskakyf
+
+tderfgsvkrvyivctedkgipeefqrwqidnigvteaieikgadhmamlcepqklcaslleia
+
+HKYN*
+
